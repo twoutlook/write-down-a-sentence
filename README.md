@@ -4,5 +4,5 @@
 - Small talk, especailly with stranger, is a way to know people's character or likes and dislikes. Sometimes we also use it to reveal our interests in a subtle way.
 - In small talk, Weather is on the top of Formal category. It's safe, always! Religion and Politics are in Informal category, better not to touch it.
 
-### 6/17 Early 5k jogging
-- 
+### 6/17 Early 5K jogging
+- I didn't jog since I moved to current location. Get up early and give it a try. A good workout and should do it more often!
