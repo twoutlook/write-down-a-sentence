@@ -6,4 +6,4 @@
 
 ### 6/17 Early 5K jogging
 - I didn't jog since I moved to my current location. Get up early and give it a try. It's a good workout. And, I should do it more often!
-- Continue to develop corporate manufactory management application. Make it in a good path, mind-set in a flow status. Enjoy it!
+- Continue to develop corporate manufactory management applications. Make it in a good path, mindset in a flow status. Enjoy it!
