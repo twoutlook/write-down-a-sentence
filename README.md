@@ -7,3 +7,6 @@
 ### 6/17 Early 5K jogging
 - I didn't jog since I moved to my current location. Get up early and give it a try. It's a good workout. And, I should do it more often!
 - Continue to develop corporate manufactory management applications. Make it in a good path, mindset in a flow status. Enjoy it!
+
+### 6/18 1984
+I was too young to understand the concept of Nineteen Eighty-Four when I  read it many years ago. Nowadays, after reviewing some summary audio and video, I can tell that's a future-world fiction story from 1949's mind.
