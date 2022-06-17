@@ -10,3 +10,6 @@
 
 ### 6/17 book:1984
 I was too young to understand the concept of Nineteen Eighty-Four when I  read it many years ago. Nowadays, after reviewing some summary audio and video, I can tell that's a future-world fiction story from 1949's mind.
+
+### 6/17 Rooster crows
+In this laugh-out-loud movie clip, we saw a rooster crowing lengthy and almost fell over. It's funny. Well, some medical students might consider discussing it as a case of not enough oxygen to the brain.
