@@ -13,3 +13,8 @@ I was too young to understand the concept of Nineteen Eighty-Four when I  read i
 
 ### 6/17 Rooster crows
 In this laugh-out-loud movie clip, we saw a rooster crowing lengthy and almost fell over. It's funny. Well, some medical students might consider discussing it as a case of not enough oxygen to the brain.
+
+### 6/18 Leon's Zoom meeting
+It's my first time to join Leon's Saturday night's Zoom meeting. We talked about nature and to value the time.
+After meeting, I went for 5K jogging. Not for speed, main purpose is to maintain. Sport watch's heartbeat rate is higher than I expected. 
+
