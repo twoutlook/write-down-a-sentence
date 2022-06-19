@@ -18,3 +18,5 @@ In this laugh-out-loud movie clip, we saw a rooster crowing lengthy and almost f
 It's my first time to join Leon's Saturday night's Zoom meeting. We talked about nature and to value the time.
 After meeting, I went for 5K jogging. Not for speed, main purpose is to maintain. Sport watch's heartbeat rate is higher than I expected. 
 
+### 6/19 Lord Please Keep Your Arm Around My Shoulder and Your Hand Over My Mouth
+- I could not be sure to understand it correctly. Search origin of this quote on the internet and no found. However Amazon's "Wooden Funny Sign/Please Keep Your Arm Around My Shoulder and Your Hand Over My Mouth - Amen" came first. And then an article in the title and opening stated as follows " --- A Meditation on the Sins of Speech" and "One of the greatest gifts of the Human person is the capacity to speak. It is also one of our greatest weaknesses. The Book of James says,"
