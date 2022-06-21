@@ -20,3 +20,9 @@ After meeting, I went for 5K jogging. Not for speed, main purpose is to maintain
 
 ### 6/19 Lord Please Keep Your Arm Around My Shoulder and Your Hand Over My Mouth
 - I could not be sure to understand it correctly. Search origin of this quote on the internet and no found. However Amazon's "Wooden Funny Sign/Please Keep Your Arm Around My Shoulder and Your Hand Over My Mouth - Amen" came first. And then an article in the title and opening stated as follows " --- A Meditation on the Sins of Speech" and "One of the greatest gifts of the Human person is the capacity to speak. It is also one of our greatest weaknesses. The Book of James says,"
+
+### 6/20 Ball drops
+Ball drops in the Friends episodes referred to New York Time Square New Year count down. It also means losing opportunities from the ball game missing catch.
+
+### 6/21 Paradigm
+A paradigm is a map to guide our perspective. Paradigm shifting means we can see things from others. That's a good expression from  7 Habits of Highly Effective People. Relearn. Or I didn't fully understand this concept earlier.
