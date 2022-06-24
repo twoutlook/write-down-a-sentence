@@ -26,3 +26,21 @@ Ball drops in the Friends episodes referred to New York Time Square New Year cou
 
 ### 6/21 Paradigm
 A paradigm is a map to guide our perspective. Paradigm shifting means we can see things from others. That's a good expression from  7 Habits of Highly Effective People. Relearn. Or I didn't fully understand this concept earlier.
+
+
+
+### 06/22 Be Proactive
+Be Proactive is the first habit of 7.
+The 7 Habits of Highly Effective People.
+For me, it's about timing.
+Anything you need to do, you do it before other people push you to do it. You're proactive.
+
+### 06/23 Habit 2: "Begin with the end in mind"
+"Begin with the end in mind" is to know your destination before you start to travel.
+"Begin with the end in mind" is to build up software application with the specfications beforehand.
+
+## 06/24 Habit 3: "Put first things first"
+For daily practice, we must handle esential tasks when you're in the best condition. 
+Make good arrangement.
+Don't delay.
+Don't create anything urgent by yourself.
