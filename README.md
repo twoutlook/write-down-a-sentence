@@ -44,3 +44,19 @@ For daily practice, we must handle esential tasks when you're in the best condit
 Make good arrangement.
 Don't delay.
 Don't create anything urgent by yourself.
+
+## 06/25 found out youenglish.com again
+Rachel's English mentioned youenglish.com and found it out again.
+You've gotta be kidding me.
+a couple of weeks ago
+
+## 06/26 https://storyofsong.com/story/hotel-california/
+Story of Song
+It’s about the jaded and hedonistic lifestyle that characterizes southern California. Don Henley said “It’s a song about a journey from innocence to experience.” When The Eagles were interviewed they said “it is about the jaded, blasé, hedonistic lifestyle that characterizes California” And indeed when you listen to the song there are lyrics that sounds like the epitome of that type of lifestyle (mirrors on the ceiling, pink champagne on ice, Mercedes-benz). Hotel California has inspired endless debates on what the lyrics really mean as they’re very enigmatic and cryptic.
+
+
+
+However there are other interpretations for the lyrics that are more penetrative and titillating and even darker. One of the most interesting ones is that whole song is a metaphor for a drug trip and The Hotel California (THC) spells out the principal components in grass which needless to say was extremely popular in southern California at that time. So if you listen at the beginning of the song “on a dark desert highway cool wind in my hair warm smell of colitas rising up through the air” Colitas in America could be a codeword for grass. Then a woman appears out of nowhere “There she stood in the hallway I heard the mission bell I was thinking to myself this could be heaven or this could be hell” So this could be a whole initiation into drugs.
+
+The third and more somber interpretation is that the Eagles at the height of their success have been lured in the church of Satan under the auspices of the great satanic priest Anton LaVey and that they did not dare to speak about Satan publicly but wrote this song and masked the lyrics inside the song. When you open the original album you will see the inside of the hotel lobby and in the back window you will see a man dressed in black robes and a shaved head. If you zoom in on it that figure it’s Anton LaVey. The church of Satan was established in 1969 in California and basically its tenets were hedonism, living to the hilt, disregard of traditional morality and indulging fully in the senses and particularly the sensual senses. Also in the song “I was thinking to myself this could be heaven or this could be hell” an indication of something sinister. At the end of the song “You can check-out anytime you like but you can never leave” as it is known that if you sell your soul to Satan it belongs to him forever even if you try to redeem yourself afterwards. But the lyrics that are indisputable in the eyes of something related to Satanism are “So I called up the captain please bring me my wine he said we haven’t had that spirit in here since 1969”–the spirit of Jesus has left this church since the church of Satan had been established.
+Don Felder had rented a beach house on Malibu beach; he was sitting on the couch and just started playing guitar and out came that chord progression. Then he ran back to the bedroom where he had set up a reel to reel recording studio and recorded the progressions 5 or 6 times so he wouldn’t forget it. His 1 year old daughter was sleeping in that same room. Later Don was compiling song ideas and felt he needed to finish this particular song. Don Felder then sent the song to Don Henley and Glenn Frey where they added the lyrics. Glenn Frey said “Don Felder used to send Henley and I instrumental tapes, so Don and I were listening to one of his cassettes when this song “Hotel California” came up when we both said this is kind of interesting”. Frey added” The first working title, the name we gave it, was Mexican Reggae”. Joe Walsh added tunes to the last part of the song.
